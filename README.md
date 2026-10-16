@@ -2,7 +2,7 @@
 - 👀 I’m interested in soccer
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me gabiik59@gmail.com
+- 📫 How to reach me gabrielkotowicz0@gmail.com
 
 - ⚡ Fun fact: ...
 
